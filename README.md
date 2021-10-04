@@ -9,4 +9,4 @@ http://www.peglev.app.br
 http://www.acquapix.com.br
 
 # upfootprin
-#ecologicalfootprint #susteinable #recycing #reuse #revolixionarios #Cradletocradle
+#ecologicalfootprint #susteinable #recycing #reuse #revolixonarios #Cradletocradle
